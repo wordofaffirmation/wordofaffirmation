@@ -1,6 +1,6 @@
 <div align="center">
 
-Haii im yuji! ^_^ 
+Haii im Peter or Asta! ^_^ 
 
 <div align="center"> 
 
