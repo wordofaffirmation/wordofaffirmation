@@ -10,7 +10,7 @@ i enjoy cuddling so feel free to do so ^_^
 
 <div align="center"> 
 
-my comms are open!!
+my comms are open!! paypal only
 
 <div align="center">
 
