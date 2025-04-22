@@ -6,14 +6,12 @@ Hi im Asta
 
 i enjoy cuddling so feel free to do so ^_^
 
-![FMA-cover](https://github.com/user-attachments/assets/6fd4a9a9-cd31-433b-9395-745f0b91222c)
+![Untitled315_20250422121059](https://github.com/user-attachments/assets/5e3ec3f0-4065-4880-897a-47e702b1fd42)
+
 
 <div align="center"> 
 
-my comms are open!! paypal only
+im usually with my gf or friends, i dont mind interacting with others while with friends.
 
-<div align="center">
+![Untitled315_20250422121434](https://github.com/user-attachments/assets/b0a4e55b-1ae3-4d40-bbce-cc94de6df64e)
 
-making a new com sheet
-
-![Untitled162_20250406110506](https://github.com/user-attachments/assets/4ef90a29-1299-40fa-b6af-94ed822eddb8)
