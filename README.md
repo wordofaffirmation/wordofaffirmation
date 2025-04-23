@@ -6,12 +6,11 @@ Hi im Asta
 
 i enjoy cuddling so feel free to do so ^_^
 
-![Untitled315_20250422121059](https://github.com/user-attachments/assets/5e3ec3f0-4065-4880-897a-47e702b1fd42)
+![e75abc25146e28f1c8ac47e638958a90](https://github.com/user-attachments/assets/a309e49b-56f1-4ca2-8460-5b99c5bc3c24)
 
 
 <div align="center"> 
 
 im usually with my gf or friends, i dont mind interacting with others while with friends.
 
-![Untitled315_20250422121434](https://github.com/user-attachments/assets/b0a4e55b-1ae3-4d40-bbce-cc94de6df64e)
-
+![69ef94cc2180e90454bc1d4d34ce6f1a](https://github.com/user-attachments/assets/9478e9da-e135-4a0e-ac63-bd131a1ff625)
