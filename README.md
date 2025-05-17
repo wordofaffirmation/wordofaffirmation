@@ -1,16 +1,17 @@
 <div align="center">
 
-Hi im Shin
+Hi im asta
 
 <div align="center"> 
 
-i enjoy cuddling so feel free to do so ^_^
+i cant and will not be playing pt anymore since i keep getting suspended LOL
 
-![e75abc25146e28f1c8ac47e638958a90](https://github.com/user-attachments/assets/a309e49b-56f1-4ca2-8460-5b99c5bc3c24)
+![Screenshot_2025-05-16-21-17-12-72_84c9ef400ab248a2e4a3b31139e21163](https://github.com/user-attachments/assets/72bc5da2-e180-4dff-9f66-088acb0d83fe)
+
 
 
 <div align="center"> 
 
-im usually with my gf or friends, i dont mind interacting with others while with friends.
+i love my girlfrienddd 💕
 
-![69ef94cc2180e90454bc1d4d34ce6f1a](https://github.com/user-attachments/assets/9478e9da-e135-4a0e-ac63-bd131a1ff625)
+![Screenshot_2025-05-17-08-16-01-95_f9ee0578fe1cc94de7482bd41accb329](https://github.com/user-attachments/assets/4e4a7714-adf8-4010-9e9f-bef6e488a5c4)
